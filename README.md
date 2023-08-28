@@ -1,0 +1,4 @@
+# BootCampExit-
+Operation Spark Bootcamp Exit Exam
+
+ANSWERS TO THE OPERATION SPARK BOOTCAMP EXIT EXAM FROM 2023
